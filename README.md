@@ -1,2 +1,0 @@
-# breidy
-hola wey
